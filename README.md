@@ -1,0 +1,1 @@
+# coregold.io-VCC
